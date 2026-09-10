@@ -1,4 +1,12 @@
-## Hi there 👋
+# WILL BE UPDATED ALMOST EVERY WEEKEND UNLESS BUSY,, DO NOT SIGN ATA ASKING MULTIPLE TIMES.
+
+
+## IF I ADDED SOMEONE PROBLEMATIC LET ME KNOW THROUGH THE ATA. ( doc / proof must be added. )
+
+
+### will only have category ( ______ official character ! ! ) ,, no requests for now.
+
+
 
 <!--
 **Ponyhonors/Ponyhonors** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
