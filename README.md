@@ -14,4 +14,4 @@
 <br>
 <br>
 
-[@Scr1bblez]([https://github.com](https://github.com/Scr1bblez)) is ponytowns official marceline the vampire queen,, ^_^
+[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline the vampire queen,, ^_^
