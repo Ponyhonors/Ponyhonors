@@ -15,3 +15,7 @@
 <br>
 
 [@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline the vampire queen,, ^_^
+
+[@H0RR0RF4RT](https://github.com/H0RR0RF4RT) is ponytowns official martian from faa ( fact attack adventures ),, ^_^
+
+[@P3BBLE3](https://github.com/P3BBLE3) is ponytowns official pebble from dandys world,, ^_^
