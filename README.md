@@ -6,8 +6,16 @@
 
 ### will only have category ( ______ official character ! ! ) ,, no requests for now.
 
+<br>
+<br>
 
-GITHUB MUST BE SPELT EXACTLY RIGHT,, IF THERE IS A CAPITAL MAKE SURE ITS A CAPITAL. PLEASE MAKE SURE THE CHARACTER YOU WANT TO CLAIM IS NOT TAKEN UNLESS YOU WONT BE ADDED. 
+github must be spelt exactly right,,
+must add the fandom name in,,
+1 character max,,
+if character is taken then choose a different one,,
+to change your character please sign ata -> say you wanna change your character -> give your gh again and new character in ata.
+( ✅ = added,, ❓ = cannot be added if fandom or gh is wrong,, ❌ = will not be added if person is known to be problematic or fandom is problematic. )
+if spreading awareness that I added someone problematic unknowingly please say their github and add a doc with screenshot or video proof in it through ata.
 
 <br>
 <br>
