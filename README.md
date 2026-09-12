@@ -6,6 +6,9 @@
 
 ### will only have category ( ______ official character ! ! ) ,, no requests for now.
 
+
+GITHUB MUST BE SPELT EXACTLY RIGHT,, IF THERE IS A CAPITAL MAKE SURE ITS A CAPITAL. PLEASE MAKE SURE THE CHARACTER YOU WANT TO CLAIM IS NOT TAKEN UNLESS YOU WONT BE ADDED. 
+
 <br>
 <br>
 
@@ -18,4 +21,12 @@
 
 [@H0RR0RF4RT](https://github.com/H0RR0RF4RT) is ponytowns official martian from faa ( fact attack adventures ),, ^_^
 
+[@v4mpznf4ngz](https://github.com/V4MPZNF4NGZ) is ponytowns official The Guardian from slendytubbies,, ^_^
+
+[@coalcarolynne](https://github.com/coalcarolynne) is ponytowns official coal from dandys world,, ^_^
+
 [@P3BBLE3](https://github.com/P3BBLE3) is ponytowns official pebble from dandys world,, ^_^
+
+[@NECRO-GUITAR](https://github.com/NECRO-GUITAR) is ponytowns official Sal Fisher from sally face,, ^_^
+
+[@j777ckpot](https://github.com/j777ckpot) is ponytowns official Evan Myers/HABIT from EverymanHYBRID,, ^_^
