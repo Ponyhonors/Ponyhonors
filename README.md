@@ -38,3 +38,12 @@ if spreading awareness that I added someone problematic unknowingly please say t
 [@NECRO-GUITAR](https://github.com/NECRO-GUITAR) is ponytowns official Sal Fisher from sally face,, ^_^
 
 [@j777ckpot](https://github.com/j777ckpot) is ponytowns official Evan Myers/HABIT from EverymanHYBRID,, ^_^
+
+[@CosmoThePastryy](https://github.com/CosmoThePastryy) is ponytowns official Cosmo the Pastry from dandy's world,, ^_^
+
+[@sw33tsug4rcookie](https://github.com/sw33tsug4rcookie) is ponytowns official Ginger from dandys world,, ^_^
+
+[@TARGET-SOUL](https://github.com/TARGET-SOUL) is ponytowns official Killer Sans (from Something New (<-- an undertale au),, ^_^
+
+[@DandiestRain](https://github.com/DandiestRain) is ponytowns official Dandy from dandys world,, ^_^
+
