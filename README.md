@@ -47,3 +47,5 @@ if spreading awareness that I added someone problematic unknowingly please say t
 
 [@DandiestRain](https://github.com/DandiestRain) is ponytowns official Dandy from dandys world,, ^_^
 
+[@Aspenolia](https://github.com/Aspenolia) is ponytowns official Azurewrath from forsaken/voidtales,, ^_^
+
