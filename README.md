@@ -49,3 +49,7 @@ if spreading awareness that I added someone problematic unknowingly please say t
 
 [@Aspenolia](https://github.com/Aspenolia) is ponytowns official Azurewrath from forsaken/voidtales,, ^_^
 
+[@kiwiconiccc](https://github.com/kiwiconiccc) is ponytowns official saiki kusuo from saiki k,, ^_^
+
+[@yellowdeltarune](https://github.com/yellowdeltarune) is ponytowns official yellow from deltarune, chapter 5,, ^_^
+
