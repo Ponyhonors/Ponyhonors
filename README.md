@@ -27,7 +27,7 @@ if spreading awareness that I added someone problematic unknowingly please say t
 <br>
 <br>
 
-[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline the vampire queen,, ^_^
+[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline from at,, uzi doorman from md,, and vaggi from hbh,, ^_^
 
 [@H0RR0RF4RT](https://github.com/H0RR0RF4RT) is ponytowns official martian from faa ( fact attack adventures ),, ^_^
 
