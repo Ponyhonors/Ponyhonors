@@ -6,7 +6,7 @@
 
 ### will only have category ( ______ official character ! ! ) ,, no requests for now. 
 
-### last updated: 10/28/26
+### last updated: 10/30/26
 
 <br>
 <br>
@@ -83,7 +83,7 @@ if spreading awareness that I added someone problematic unknowingly please say t
 
 [@hollow-inkwell](https://github.com/hollow-inkwell) is ponytowns official ink sans from (undertale?),, ^_^
 
-[@twottimey](https://github.com/twottimey) is ponytowns official two time from forsaken,, ^_^
+[@disorderlyfashion](https://github.com/disorderlyfashion) is ponytowns official squirrelflight from warrior cats,, ^_^
 
 [@MAFIAPUP](https://github.com/MAFIAPUP) is ponytowns official Mafioso from forsaken,, ^_^
 
@@ -126,3 +126,5 @@ if spreading awareness that I added someone problematic unknowingly please say t
 [@DreamsAndRJX](https://github.com/DreamsAndRJX) is ponytowns official Marcelo from bridge mankind collapse,, ^_^
 
 [@2099s](https://github.com/2099s) is ponytowns official Miguel O’Hara from ATSV/marvel comics,, ^_^
+
+[@RE0-MIKAGE](https://github.com/RE0-MIKAGE) is ponytowns official reo mikage from bluelock,, ^_^
