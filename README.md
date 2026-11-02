@@ -6,7 +6,7 @@
 
 ### will only have category ( ______ official character ! ! ) ,, no requests for now. 
 
-### last updated: 10/30/26
+### last updated: 11/2/26
 
 <br>
 <br>
@@ -27,7 +27,7 @@ if spreading awareness that I added someone problematic unknowingly please say t
 <br>
 <br>
 
-[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline from at,, uzi doorman from md,, and vaggi from hbh,, ^_^
+[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline from at and uzi doorman from murder drones,, ^_^
 
 [@H0RR0RF4RT](https://github.com/H0RR0RF4RT) is ponytowns official martian from faa ( fact attack adventures ),, ^_^
 
@@ -128,3 +128,5 @@ if spreading awareness that I added someone problematic unknowingly please say t
 [@2099s](https://github.com/2099s) is ponytowns official Miguel O’Hara from ATSV/marvel comics,, ^_^
 
 [@RE0-MIKAGE](https://github.com/RE0-MIKAGE) is ponytowns official reo mikage from bluelock,, ^_^
+
+[@9i71](https://github.com/9i71) is ponytowns official rebecca from murder drones,, ^_^
