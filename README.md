@@ -27,7 +27,7 @@ if spreading awareness that I added someone problematic unknowingly please say t
 <br>
 <br>
 
-[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official marceline from at and uzi doorman from murder drones,, ^_^
+[@Scr1bblez](https://github.com/Scr1bblez) is ponytowns official uzi doorman from murder drones,, ^_^
 
 [@H0RR0RF4RT](https://github.com/H0RR0RF4RT) is ponytowns official martian from faa ( fact attack adventures ),, ^_^
 
